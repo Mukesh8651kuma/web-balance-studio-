@@ -1,2 +1,2 @@
 # web-balance-studio-
-I am good
+Creative Web Developer | Frontend Designer
